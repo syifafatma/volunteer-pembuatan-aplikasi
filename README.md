@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunteer yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Jodoh Diluc, [Linkedin](https://www.linkedin.com/in/syifafatmawati/).
